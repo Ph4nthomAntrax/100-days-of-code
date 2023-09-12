@@ -6,7 +6,7 @@
 
 #### Fecha de inicio
 
-25 de junio de 2016. [ponga su nombre aquí]
+11 de septiembre de 2023. Luis Francisco Soto Fernandez
 
 ## Reglas adicionales
 
